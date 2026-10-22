@@ -11,3 +11,7 @@
 <b>name:</b> eclippy<br />
 Adopt one yourself! @<a href="https://www.pokemon-adoption.de">Pok&eacute;mon Orphanage</a>
 </div>
+<br> <br>
+
+<h5 align="center">
+   other boxten kins, please interact with very extreme caution or dni.. unfortunately, i am very mentally unwell about boxten, and seeing other boxtens makes me uncomfortable 
